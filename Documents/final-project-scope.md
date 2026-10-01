@@ -8,13 +8,13 @@ The current state of the community if unacceptable and the dwindling state is ca
 With the help of Protections for the Juvenile and Adolescent we will strive for a better and cleaner community with the implementation of their newest program; Households against Havoc; a program created to combat against the growing issues of our community and provide better care for our streets and kin. 
 Implementation will include:
 * Cleaning trash off of the roads, streets, sidewalks, and ditches that reside within the community.
-* Conducting medical check ups on those who volunteer and provide the required medical assistance and care.
+* Conducting medical checkups on those who volunteer and provide the required medical assistance and care.
 * Protections for the Juvenile and Adolescent will survey the area after a month of the project being implemented to provide feedback on the community’s work to better itself and the opinions of those within the community.
 * If significant results are shown, then the community will be rewarded with items provided by the Protections for the Juvenile and Adolescent. Rewards will include a congratulatory celebration at the school of (---), A Food Truck Rally, as well as other rewards.
 ## People Resources – 
 Community Council Rep. (///), Project Lead. (///), Ambassador of Protections for the Juvenile and Adolescent. (///), Principal at the school of (---). (///).
 ## Why do this Project? – 
-The reason we believe this project should be implemented is due to the growing frequency of sickness that had plagued out community and has caused many families to fear for the health of both them and their children.
+The reason we believe this project should be implemented is due to the growing frequency of sickness that has plagued our community and has caused many families to fear for the health of both them and their children.
 ## Desired Results – 
 The desired result of this project is to reduce the rate of sickness by 15% and clear up the pollution level within the community by 25%.
 ## Priorities:
